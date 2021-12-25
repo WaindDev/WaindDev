@@ -6,5 +6,5 @@ minecraft-development'ом, поэтому практически все про�
 
 ### Реквизиты:
 
-[ВК](https://vk.com/vvaind): https://vk.com/vvaind
-Дискорд: Waind#9320
+1. ВК: https://vk.com/vvaind
+2. Дискорд: Waind#9320
